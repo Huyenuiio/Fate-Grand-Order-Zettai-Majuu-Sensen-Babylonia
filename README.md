@@ -1,1 +1,1 @@
-# Fate-Grand-Order-Zettai-Majuu-Sensen-Babylonia
+Huyenuiio/Fate-Grand-Order-Zettai-Majuu-Sensen-Babylonia does not host any files, it merely links to 3rd party services. Legal issues should be taken up with the file hosts and providers. (https://huyenuiio.github.io/Fate-Grand-Order-Zettai-Majuu-Sensen-Babylonia/) is not responsible for any media files shown by the video providers.
